@@ -1,2 +1,2 @@
 # aries-protocol
-For the people
+For the us in you!
